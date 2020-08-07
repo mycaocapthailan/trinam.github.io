@@ -1,1 +1,0 @@
-# trinam.github.io
